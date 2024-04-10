@@ -14,4 +14,4 @@ $\frac{50++10}{2}=30$
 $\sqrt{3x-1}+(1+2x)²$.
 
 
-![](https://pin.it/5tWtdhHFs)
+![](Veja isto... 👀  https://pin.it/3f7c4DlOh)
